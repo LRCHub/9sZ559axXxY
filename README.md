@@ -1,0 +1,81 @@
+# Wage War – MAGNETIC
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+You and me are always
+gonna be magnetic
+You and me are always
+gonna be magnetic
+Chew me up and spit me out
+'Cause you know
+that I'll come back
+End to end, we separate
+But the emptiness attracts
+'Cause I know
+Where I shouldn't go
+When I feel this low, oh no
+This time I can't let go
+It's out of my control
+No matter how hard I try
+You pull me back every time
+You try to push away,
+but I'm right back at it
+'Cause you and me are
+always gonna be magnetic
+No matter how far I run
+One taste and I come undone
+You try to push away,
+but I'm right back at it
+'Cause you and me are
+always gonna be magnetic
+You and me are always
+gonna be magnetic
+You and me are always
+gonna be magnetic
+I pull the strings
+that set me free
+But the hand above ain't mine
+To hell with all
+you say and mean
+'Cause Heaven knows they lies
+And I know
+Where I shouldn't go
+When I feel this low, oh no
+This time I can't let go
+No matter how hard I try
+You pull me back every time
+You try to push away,
+but I'm right back at it
+'Cause you and me are
+always gonna be magnetic
+No matter how far I run
+One taste and I come undone
+You try to push away,
+but I'm right back at it
+'Cause you and me are
+always gonna be magnetic
+It's a force we can't escape
+We're tied to fate
+We're tied to fate
+No matter how hard I try
+You pull me back every time
+You and me are
+always gonna be magnetic
+No matter how hard I try
+You pull me back every time
+You try to push away,
+but I'm right back at it
+'Cause you and me are
+always gonna be magnetic
+No matter how far I run
+One taste and I come undone
+You try to push away,
+but I'm right back at it
+'Cause you and me are
+always gonna be magnetic
+You and me are
+always gonna be magnetic
+You and me are
+always gonna be magnetic
+```
